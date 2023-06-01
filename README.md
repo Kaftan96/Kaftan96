@@ -7,5 +7,5 @@
 - 🤔 I’m looking for constructive criticism
 s about my projects 
 - 💬 Ask me about ... ?  
-- 📫 How to reach me: katarzynakowacka96@gmail.com
+- 📫 How to reach me: 
 - ⚡ Fun fact: in my free time Im a firefighter 👩‍🚒
